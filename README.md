@@ -13,3 +13,9 @@ Chapter 1: See yourself as an economic product on the open market
 
 
 Chapter 2: See yourself as a hero, not a victim.
+
+Chapter 3: Know how to de-escalate drama.
+
+"Dramatic peopler, however, steal your energy so you don't have anything left to take care of yourself or others."
+"We respect people who react a little under, not over, the lever of drama a situation deserves. We trust people who can remain calmand de-escalate drama so that crucial energy needed to deal with a truly important situation is not wasted."
+"When tasked with something monumental, being a dramatic person will not serve your interests."
