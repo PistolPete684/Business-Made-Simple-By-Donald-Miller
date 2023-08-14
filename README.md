@@ -19,3 +19,15 @@ Chapter 3: Know how to de-escalate drama.
 "Dramatic peopler, however, steal your energy so you don't have anything left to take care of yourself or others."
 "We respect people who react a little under, not over, the lever of drama a situation deserves. We trust people who can remain calmand de-escalate drama so that crucial energy needed to deal with a truly important situation is not wasted."
 "When tasked with something monumental, being a dramatic person will not serve your interests."
+
+Chapter 4: Accept Feedback as a Gift
+
+"Many of the worl's most successful people have established a routine in which they get feedback from their peers."
+To establish a feeback loop in your life, consider these ideas:
+"1. Choose people who have your best interest at heart."
+"2. Schedule meetings in a repeting routine-every quarter or every month."
+"3. Establish a routine set of questions."
+"Have you seen me act unprofessionally?"
+"Have you noticed that I've been missing something?"
+"What am I doing that I can improve upon?"
+"Very few people have the ability to hear and accept feedback."
