@@ -31,3 +31,11 @@ To establish a feeback loop in your life, consider these ideas:
 "Have you noticed that I've been missing something?"
 "What am I doing that I can improve upon?"
 "Very few people have the ability to hear and accept feedback."
+
+Chapter 5: Know the Right Way to Engage in Conflict
+
+"Conflict avoidant people are rarely chosen to lead."
+"You cannot climb a mountain, build a bridge, create a community, or grow a business without engaging in and navigating conflict."
+"...conflict and success go hand in hand. If you avoid conflict, your will not achieve success."
+
+
