@@ -46,4 +46,14 @@ Chapter 6: Long to be Trusted and Respected More Than Liked
 "Let them know and keep them accountable in a daily stand up meeting."
 "Do not put your team in the mind reading business. Even if they clearly meet your expectations, they won't beleive it until you tell them."
 
+Chapter 7: Have a Bias toward Action
+
+"...becoming successful is more about fully being yourself than it is about any kind of formula."
+"That said, there is one thing every successful person has in common: They have a bias toward action."
+"getting the ball in the end zone"
+:We say this because we know drawing up plays, giving pep talks, and even the hard work of driving the ball down the field does not produce points. The only thing that produces points is putting the ball in the end zone."
+"In fact, it's surprising to me how many successful people I've met who I did not find to be especialy intelligent. That is, as I've talked with them, I realised they were not well read or imaginative. And as I've wondered how such simple thinkers could end up with so much influence and money, I've realised it'vs because their incredibly strong bias towards action."
+"...know that you can beat just about anybody in the marketplace as long as you wake up everyday and take action."
+
+
 
