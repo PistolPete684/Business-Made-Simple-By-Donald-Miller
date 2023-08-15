@@ -38,4 +38,12 @@ Chapter 5: Know the Right Way to Engage in Conflict
 "You cannot climb a mountain, build a bridge, create a community, or grow a business without engaging in and navigating conflict."
 "...conflict and success go hand in hand. If you avoid conflict, your will not achieve success."
 
+Chapter 6: Long to be Trusted and Respected More Than Liked
+
+"What team members want most is clarity."
+"Many new managers are confused at how relationships with peers change when they are chosen to lead."
+"When you ask a team member what their boss expects of them, the team member should know;..."
+"Let them know and keep them accountable in a daily stand up meeting."
+"Do not put your team in the mind reading business. Even if they clearly meet your expectations, they won't beleive it until you tell them."
+
 
