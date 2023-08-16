@@ -61,6 +61,10 @@ Chapter 8: Do Not Choose to Be Confused
 "We just don't want to do the thing we need to do, and so we choose confusion to avoid responsibility."
 "It helps me in times of confusion to actually name what it is that is making us confused."
 
+Chapter 9" Be Relentlessly Optimistic
+
+
+
 
 
 
