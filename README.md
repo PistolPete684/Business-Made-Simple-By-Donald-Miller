@@ -55,5 +55,12 @@ Chapter 7: Have a Bias toward Action
 "In fact, it's surprising to me how many successful people I've met who I did not find to be especialy intelligent. That is, as I've talked with them, I realised they were not well read or imaginative. And as I've wondered how such simple thinkers could end up with so much influence and money, I've realised it'vs because their incredibly strong bias towards action."
 "...know that you can beat just about anybody in the marketplace as long as you wake up everyday and take action."
 
+Chapter 8: Do Not Choose to Be Confused
+
+"What masquerades as confusion is often our desire to avoid conflict and out unwillingness to take action."
+"We just don't want to do the thing we need to do, and so we choose confusion to avoid responsibility."
+"It helps me in times of confusion to actually name what it is that is making us confused."
+
+
 
 
