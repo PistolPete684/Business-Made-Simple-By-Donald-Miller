@@ -63,6 +63,11 @@ Chapter 8: Do Not Choose to Be Confused
 
 Chapter 9" Be Relentlessly Optimistic
 
+Chapter 10: Have a Growth Mindset
+
+Why do they become defensive? Because they do not beleive they can learn to do better.
+In short, having a growth mindset is about understanding that we will never reach the top of the mountain but we can keep climbing so the view gets better and better. 
+
 
 
 
