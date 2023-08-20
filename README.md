@@ -73,6 +73,15 @@ The number one job of a leader is to wake up every morning, point to the horizon
 Great leaders become great because their mission makes them great.
 A leader who can help a team define a mission and who can remind that team daily of what the mission is and why it matters is a valuable gift to their organization. 
 
+Day 11: Write a Good Mission Statement
+
+To lead yourself of a team, you have to know where you're going. 
+A good mission statement is short, interesting and inspirational. Otherwise, it's worthless. 
+It should explain what you are doing to serve people and why that effort matters.
+People are attracted to a mission. They aren't attracted to business jargon.
+Here is a formula for a good mission statement: We will accomplish _____ by _____ because of _____ .
+The reality is, if we or our team cannot recite our mission statement, we are not on a mission.
+
 
 
 
