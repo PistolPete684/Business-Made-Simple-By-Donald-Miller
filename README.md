@@ -82,6 +82,15 @@ People are attracted to a mission. They aren't attracted to business jargon.
 Here is a formula for a good mission statement: We will accomplish _____ by _____ because of _____ .
 The reality is, if we or our team cannot recite our mission statement, we are not on a mission.
 
+Day 12: Define Key Characteristics
+
+When I say inspirational, I mean they don't have to be characteristics you currently embody. They can be characteristics they demand improvement and change. And when I say instructive, What I mena is they should be immediatley actionable when sombody hears them. 
+When you define the key characteristics your team needs to develop, you're defining the kinds of people who are aloud to work for you. 
+Defining key characteristics helps you know which people to hire and which people to dismiss. If you fail to define the key characteristics required to accomplish yourmission, your will likley have the wrong people on your team. 
+What sort of characteristics is it important for you and your team members to have in order to accomplish your mission?
+
+
+
 
 
 
