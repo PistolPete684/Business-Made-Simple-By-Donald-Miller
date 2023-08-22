@@ -89,6 +89,10 @@ When you define the key characteristics your team needs to develop, you're defin
 Defining key characteristics helps you know which people to hire and which people to dismiss. If you fail to define the key characteristics required to accomplish yourmission, your will likley have the wrong people on your team. 
 What sort of characteristics is it important for you and your team members to have in order to accomplish your mission?
 
+Day 13: Determine Critical Actions
+But unless characters in stories do something, the mission will never be accomplished. 
+...but by defining three critical actions everyone of you can take, ou create a sense of alignment you wouldn't otherwise have. 
+
 
 
 
