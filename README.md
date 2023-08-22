@@ -92,6 +92,8 @@ What sort of characteristics is it important for you and your team members to ha
 Day 13: Determine Critical Actions
 But unless characters in stories do something, the mission will never be accomplished. 
 ...but by defining three critical actions everyone of you can take, ou create a sense of alignment you wouldn't otherwise have. 
+...you collect and focus energy toward the accomplishment of your mission. 
+Those three critical actions establish a way of life
 
 
 
