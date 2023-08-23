@@ -95,6 +95,8 @@ But unless characters in stories do something, the mission will never be accompl
 ...you collect and focus energy toward the accomplishment of your mission. 
 Those three critical actions establish a way of life
 
+Day 14: Tell a Great Story
+
 
 
 
