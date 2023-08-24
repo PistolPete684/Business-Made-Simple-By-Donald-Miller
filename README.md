@@ -98,6 +98,8 @@ Those three critical actions establish a way of life
 Day 14: Tell a Great Story
 
 Telling the story of your company or project is important because in telling your story your attract resources. When you tell your story, people decide whether or not to buy from you, or even spread the word about what you're doing. 
+Often, they make the mistake of telling their history. 
+But your history is not your story. Your story is different. Your story is way of explaining what you do that engaged people and makes them want to join. Your history, on the other hand, is just a bunch of things that has happened in your past. 
 
 
 
