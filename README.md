@@ -102,6 +102,9 @@ Often, they make the mistake of telling their history.
 But your history is not your story. Your story is different. Your story is way of explaining what you do that engaged people and makes them want to join. Your history, on the other hand, is just a bunch of things that has happened in your past. 
 In the most simple form a story structure, a story features a character who has been destabilized by an event ands then overcomes a series of challenges to restabilize their life.
 We started with a problem, made the problem worse, positioned the product as the resolution to the problem, and then described a happier life because the problem has been solved. 
+Telling stories isn't hard. It just takes a little knowledge and then the discipline to stay on message. 
+What problem does your company solve? How is that problem making people feel? How is your product positioned to solve that problem? And after the problem is solved, what do people lives look like?
+...make sure each team member knows how to tell the story...
 
 
 
