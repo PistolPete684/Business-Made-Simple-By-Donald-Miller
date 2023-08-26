@@ -100,6 +100,8 @@ Day 14: Tell a Great Story
 Telling the story of your company or project is important because in telling your story your attract resources. When you tell your story, people decide whether or not to buy from you, or even spread the word about what you're doing. 
 Often, they make the mistake of telling their history. 
 But your history is not your story. Your story is different. Your story is way of explaining what you do that engaged people and makes them want to join. Your history, on the other hand, is just a bunch of things that has happened in your past. 
+In the most simple form a story structure, a story features a character who has been destabilized by an event ands then overcomes a series of challenges to restabilize their life.
+We started with a problem, made the problem worse, positioned the product as the resolution to the problem, and then described a happier life because the problem has been solved. 
 
 
 
