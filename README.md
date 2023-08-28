@@ -106,6 +106,15 @@ Telling stories isn't hard. It just takes a little knowledge and then the discip
 What problem does your company solve? How is that problem making people feel? How is your product positioned to solve that problem? And after the problem is solved, what do people lives look like?
 ...make sure each team member knows how to tell the story...
 
+Day 15: Define Your Theme and Your "Why"
+
+How do we convince people our mission matters? We do this by defining a theme. 
+When a writer defines a themes,  their story gets more meaningful and more clear. If we want our mission to be meaningful and clear, we must have a theme. 
+When you define your theme, you and everyone else will know why your mission matters.
+...add the word 'because' at the end of your mission statement, and then finish the sentence. 
+Knowing your theme becomes important because it is the critical soud bite that answers the question why.
+Your theme is your purpose, and people need a purpose to passionately engage in their work. 
+
 
 
 
