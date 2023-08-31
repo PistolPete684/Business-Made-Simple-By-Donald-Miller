@@ -116,11 +116,23 @@ Knowing your theme becomes important because it is the critical soud bite that a
 Your theme is your purpose, and people need a purpose to passionately engage in their work. 
 
 Chapter 3: Productivity Made Simple
+
 Many professionals work hard but get little done. Their frantic activity only serves to move them around in circles. There is one reason for this and its that their life lacks focus. 
 ...human being's life has the most menaing when they live it as though they are a hero on a mission.
 A hero on a mission lives with a purpose and intention. They do not waste their time because their time is important. A hero on a mission knows how to manage their time so they do not feel anxious but are focused, motivated, and inspired to do the work that matters. 
 If we don't establish priorities and healthy routines, telivision, news, food, achohol, and bad company are more than willing to occupy our time. Plenty of peple make plenty of money by keeping us distracted. But their distractions profit you nothing. 
 ...learn a daily routine that increases your output without increasing your anxiety.
+
+Day 16: Make Wise Daily Decisions
+
+If this were the second time I were living this day, what would I do differently?
+Pretend this is the second time you lived this day and don't make the same mistakes.
+...we need to live in such a way that we don't have regret. 
+It's by reflecting that we edit our actions and design our lives. 
+Are you desinging your life, or is somebody else designing it for you?
+
+
+
 
 
 
