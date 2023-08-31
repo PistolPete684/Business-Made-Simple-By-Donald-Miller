@@ -131,6 +131,20 @@ Pretend this is the second time you lived this day and don't make the same mista
 It's by reflecting that we edit our actions and design our lives. 
 Are you desinging your life, or is somebody else designing it for you?
 
+Day 17: Prioritize Your Primary Tasks
+
+What's the most important thing you can do today?
+...not every unit of work gets the same return.
+...two task lists each day...
+... three items are the most important tasks for the success of your important objectives. 
+The other task list will be the odds and ends that need to be accomplished. 
+Most of my prioritized tasks are small parts of much larger projects. 
+When working on enormous projects that we cannot finish in a short period of time, we are especially suseptible to short-term wins. I'd much rather return 10 emails than write ten paragraphs in a book because each email makes me feel like I've accomplished something while those ten paragraphs feel like a drop in the bucket. 
+...urgent distractions...
+Every day, we must know what our three highest return opportunitiesa are, or else low opportuntiy returns will feel more important. 
+Any work that moves us closer to our objectives is a high-return opportunity, and any work that does not is not. 
+Prioritize those taks, day after day, and you will move closer to your goals without falling into the trap of "urgent distractions".
+
 
 
 
