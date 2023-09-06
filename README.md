@@ -143,7 +143,7 @@ When working on enormous projects that we cannot finish in a short period of tim
 ...urgent distractions...
 Every day, we must know what our three highest return opportunitiesa are, or else low opportuntiy returns will feel more important. 
 Any work that moves us closer to our objectives is a high-return opportunity, and any work that does not is not. 
-Prioritize those taks, day after day, and you will move closer to your goals without falling into the trap of "urgent distractions".
+Prioritize those taks, day after day, and you will move closer to your goals without falling into the trap of "urgent distractions"..
 
 
 
