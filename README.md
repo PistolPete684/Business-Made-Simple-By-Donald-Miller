@@ -161,6 +161,18 @@ Few people realize that one of the keys to Stephen King's success is his discipl
 If we don't know what our priorities are, we will say yes to everything and delude our stories so much that our lives and work no longer make sense. 
 What are you saying no to in order to say yes to a focused and meaningful life?
 
+Day 20: Block Your Time and Get More Done:
+
+Time is worth much more than money.
+Sadly, most people don't give much thought to managing their time. That doesn't mena their time isn't managed.
+We would never let other people manage the money in our wallet, so why would we let other people manage out time-which, as pointed out, is worth so much more than money.
+Blocking periods of time in which you cannot be distracted is the equivalent of getting into the fast lane and pressing the gas pedal.
+Your entire career is based on increasing output as it relates to your activity. A value-driven professional can get twice as much done in the same period of time as a professional who does not use time strategically.
+Blocking my time in advance allows me to say no to distractions because, well, I'm already booked. 
+The idea is to create a rhythm of productivity.
+What important tasks do you need to do each week?Consider assigning those taks to a specific block of time you decide in advance. 
+...block personal time so you don't accidentally book a business meeting during the time block yuou've allotted for friends and family. 
+
 
 
 
