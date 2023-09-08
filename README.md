@@ -173,6 +173,16 @@ The idea is to create a rhythm of productivity.
 What important tasks do you need to do each week?Consider assigning those taks to a specific block of time you decide in advance. 
 ...block personal time so you don't accidentally book a business meeting during the time block yuou've allotted for friends and family. 
 
+Chapter 4: How a Business Really Works and How to Keep It From Crashing
+
+Day 22: Keep Your Overhead Down
+
+And cash flow seems to always hit zero suddenly. Nobody seems to see it coming. 
+Overhead is anyting involved in the cost of doing business tht is not releated to product creation, marketing, or sales. 
+Unless money is spent in the direct effort to make more money, that expenditure should be questioned. This is the key to keeping overhead in check. 
+Categorize your expenses into four major categories: product creation, sales, marketing and overhead. 
+
+
 
 
 
