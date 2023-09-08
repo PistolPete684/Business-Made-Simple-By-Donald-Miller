@@ -145,6 +145,14 @@ Every day, we must know what our three highest return opportunitiesa are, or els
 Any work that moves us closer to our objectives is a high-return opportunity, and any work that does not is not. 
 Prioritize those taks, day after day, and you will move closer to your goals without falling into the trap of "urgent distractions".
 
+Day 18: Maximize Your "Power Hours"
+
+The mental energy you have in the morning is stronger and more alert then the energy you'll have after lunch.
+...if you block time for your important project in the morning, you'll get to spend the rest of the day knowing you've already completed the important tasks. 
+Most value-driven professionals get their important work done in the mornings. 
+
+
+
 
 
 
