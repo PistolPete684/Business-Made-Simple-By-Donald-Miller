@@ -151,6 +151,16 @@ The mental energy you have in the morning is stronger and more alert then the en
 ...if you block time for your important project in the morning, you'll get to spend the rest of the day knowing you've already completed the important tasks. 
 Most value-driven professionals get their important work done in the mornings. 
 
+Day 19: Say "No" to Distractions
+
+They've said yes to so many things tht they've become confused about what their story is about. 
+Heroes on a mission, however, are focused. 
+There are friends who want to get together and opportunities that, while not in line with our goals, are truly exciting. 
+But what if we say yes to too many thing, we are saying no to the deep and focused attention it takes to do a few things well. 
+Few people realize that one of the keys to Stephen King's success is his disciplined ability to reject distracting opportunities in exchange for accomplishing his priorities.
+If we don't know what our priorities are, we will say yes to everything and delude our stories so much that our lives and work no longer make sense. 
+What are you saying no to in order to say yes to a focused and meaningful life?
+
 
 
 
