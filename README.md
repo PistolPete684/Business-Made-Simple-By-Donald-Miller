@@ -189,6 +189,12 @@ They are strong. There is a strong demand for the product in the marketplace.
 ...we wil only invest in products that are profitable and in demand. That's it. If we don't, we are strapping small, weak wings to our airplane and tht will lead to a crash. 
 If not, streamline your product offering so you aren't wasting precious overhead and energy pushing products that do not support the lift of the aircraft. 
 
+Day 24: Prioritize Marketing
+
+If you don't attract people to the thing you've built, they won't come. 
+Testing your marketing language is like testing an engine before your connect it to the body of the plane. Most businesses will wiat until the last minute to prepate their marketing ideas because their energy is being use to create the product/ But without the right marketing language and plan, nobody will be attracted to the product after it gets built. So why not test the engine first?
+...there are times that orders are so low, refuns must be given and the product launch should be cancelled; otherwise you risk crahsing the airplane. 
+
 
 
 
