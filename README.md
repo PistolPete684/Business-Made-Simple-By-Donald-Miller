@@ -182,6 +182,13 @@ Overhead is anyting involved in the cost of doing business tht is not releated t
 Unless money is spent in the direct effort to make more money, that expenditure should be questioned. This is the key to keeping overhead in check. 
 Categorize your expenses into four major categories: product creation, sales, marketing and overhead. 
 
+Day 23: Mane and Sell the Right Products
+
+They are light. They can be sold for considerable profit or a smaller profit but at volume.
+They are strong. There is a strong demand for the product in the marketplace.
+...we wil only invest in products that are profitable and in demand. That's it. If we don't, we are strapping small, weak wings to our airplane and tht will lead to a crash. 
+If not, streamline your product offering so you aren't wasting precious overhead and energy pushing products that do not support the lift of the aircraft. 
+
 
 
 
