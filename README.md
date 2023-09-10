@@ -195,6 +195,15 @@ If you don't attract people to the thing you've built, they won't come.
 Testing your marketing language is like testing an engine before your connect it to the body of the plane. Most businesses will wiat until the last minute to prepate their marketing ideas because their energy is being use to create the product/ But without the right marketing language and plan, nobody will be attracted to the product after it gets built. So why not test the engine first?
 ...there are times that orders are so low, refuns must be given and the product launch should be cancelled; otherwise you risk crahsing the airplane. 
 
+Day 25: Run A Sales System
+
+Create a step-by-step path your customers can take to make a purchase, and monitor the progres of every lead. 
+Monthly and weekly goals should be established that motivate sales professionals to guide more customers down the path. 
+Every sales team needs a series a steps to take a qualifies lead down in order to close the deal. 
+...the point is to predetermine the path you want to take customers down and be able to count the number of leads at each stage of the path. 
+
+
+
 
 
 
