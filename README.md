@@ -202,6 +202,11 @@ Monthly and weekly goals should be established that motivate sales professionals
 Every sales team needs a series a steps to take a qualifies lead down in order to close the deal. 
 ...the point is to predetermine the path you want to take customers down and be able to count the number of leads at each stage of the path. 
 
+Day 26: Protect Cash Flow
+
+You can have a prefectly sound airplane with giant, strong wings, a lean, light body, and two powerful engines and yet still suffer a horrific crash if you run out of fuel. 
+I canll this line of thinking the "fuel filter", because every decision has to be filtered through the questions "how will this affect cash?"
+
 
 
 
