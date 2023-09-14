@@ -212,6 +212,15 @@ Chapter 5: How (and Why) to Clarify Your Marketing Message
 Because a clear message sells a product. 
 That's what disciplines marketers do. They take the world through an exercise in memorization. Amatuers speak their minds. 
 
+Day 27: Use Story to Engage Customers
+
+The only tool known to man to spot people from daydreaming is story. 
+...within minutes we have to know what the character wants. 
+We've got to define some kind of problem the character is struggling with. The problem is the key. If we don't define the problem, people will stop paying attention.
+Heroes don't take action unless they are challenged by the guide to do so. 
+The story teller must paint a picture of what life looks like if everything goes well. 
+...happen to our hero, the storyu is dull and boring. Something must be potentially won or lost or the story won't engage the audience. 
+
 
 
 
