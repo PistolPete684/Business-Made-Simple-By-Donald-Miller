@@ -205,7 +205,14 @@ Every sales team needs a series a steps to take a qualifies lead down in order t
 Day 26: Protect Cash Flow
 
 You can have a prefectly sound airplane with giant, strong wings, a lean, light body, and two powerful engines and yet still suffer a horrific crash if you run out of fuel. 
-I canll this line of thinking the "fuel filter", because every decision has to be filtered through the questions "how will this affect cash?"
+I call this line of thinking the "fuel filter", because every decision has to be filtered through the questions "how will this affect cash?"
+
+Chapter 5: How (and Why) to Clarify Your Marketing Message
+
+Because a clear message sells a product. 
+That's what disciplines marketers do. They take the world through an exercise in memorization. Amatuers speak their minds. 
+
+
 
 
 
