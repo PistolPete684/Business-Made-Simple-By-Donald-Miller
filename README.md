@@ -229,6 +229,13 @@ Guides are the strongest characters in the story because they have already overc
 A hero tells their own story while a guide understands the hero storya nd sacrifices to help them win. 
 The one-two punch in communication as a professional is to say I know what you're struggling with and I can help you get out of it. 
 
+Day 29: Talk About Your Customers Problem
+
+Until you start talking about your product or your brand as the solution to sombebody's problem, they won't be interested. 
+The problem is the hook.
+It means that we have to keep talking about our customers' problems or they won't be interested in our products. 
+But these are wasted words. The very first thing a professional should talk about is the problem they or their product can solve. 
+
 
 
 
