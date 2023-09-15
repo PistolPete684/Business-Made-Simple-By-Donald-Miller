@@ -221,6 +221,14 @@ Heroes don't take action unless they are challenged by the guide to do so.
 The story teller must paint a picture of what life looks like if everything goes well. 
 ...happen to our hero, the storyu is dull and boring. Something must be potentially won or lost or the story won't engage the audience. 
 
+Day 28: Position Your Customer as the Hero
+
+Why? Because customer are looking for a guide who can help them win the day. They aren't looking for another hero. 
+Guides are the strongest characters in the story because they have already overcome the very same challenges the hero must now overcome. That means they are experiences and equipped and know how to win.
+...a brand, product, or leader positions itself as thehero and not the guide, customers will often look past it for another brand, leader or product. 
+A hero tells their own story while a guide understands the hero storya nd sacrifices to help them win. 
+The one-two punch in communication as a professional is to say I know what you're struggling with and I can help you get out of it. 
+
 
 
 
