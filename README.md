@@ -236,6 +236,13 @@ The problem is the hook.
 It means that we have to keep talking about our customers' problems or they won't be interested in our products. 
 But these are wasted words. The very first thing a professional should talk about is the problem they or their product can solve. 
 
+Day 30: Create a Clear Call to Action
+
+In a good story, the guide must confidently ask the hero to take action or the hero will lose confidence and fail. 
+Why? Because when a guide fails to confidently ask people to take action, the listener begins to doubt the guide's competence. Can you or can't you get the hero out of this predicament. 
+Audiences can smell whether or not you believe in your ideas or your products. Either you have a solution or you do not. You can either help in their journey or you cannot. If you cannot, you will politely ask them to buy your product in such a way that you sound like you're asking for charity (because you are). If you can help them, though, you will tell them to buy your product or use your service because your no longer want them to struggle with their problem. 
+Here was the real point I wanted my class to understand: If you do not tell people what to do, they will not do anything. If you don't end a speach with a clear call to action, people will not take action. If your do not give people a step-by-step instructions on your website, they will not take a step at all. 
+
 
 
 
