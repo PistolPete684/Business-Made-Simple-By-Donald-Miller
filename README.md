@@ -243,6 +243,15 @@ Why? Because when a guide fails to confidently ask people to take action, the li
 Audiences can smell whether or not you believe in your ideas or your products. Either you have a solution or you do not. You can either help in their journey or you cannot. If you cannot, you will politely ask them to buy your product in such a way that you sound like you're asking for charity (because you are). If you can help them, though, you will tell them to buy your product or use your service because your no longer want them to struggle with their problem. 
 Here was the real point I wanted my class to understand: If you do not tell people what to do, they will not do anything. If you don't end a speach with a clear call to action, people will not take action. If your do not give people a step-by-step instructions on your website, they will not take a step at all. 
 
+Day 31: Define the Stakes and Create Urgency
+
+...define what's at stake if the audience chooses somebody else over you. 
+If you don't define what's at stake, you will fade from memory faster than one of those black-and-white German films that chooses to be artful rather than interesting. 
+If there are no stakes, there is no story. 
+Define that's at stake and your story will get very very interesting. 
+
+Tip of the Day: When clarifying your marketing message, define what can be won or lost if people don't engage in the story you're inviting them into. 
+
 
 
 
