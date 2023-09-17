@@ -259,6 +259,26 @@ Introduction
 The reason they were able to survive is because businesses who built sales funnels had collected email addresses and contact information. They were then able to pivot thier message and their offerings to reflect the crisis. Businesses who didn't have sales funnels were not able to reach out to their customers and so were forgotten. 
 Everybody should understand how to tell people what they do and why it matters. 
 
+Day 32: Understand a Sales Funnel
+
+All sales are relational. 
+...unless they hear about products or services from people or brands they trust. 
+...they are either curious to know more about us or they are not. 
+Figure 6.1
+Curiosity
+Enlightenment 
+Commitment 
+
+Whether people are curious about your or your brand depends on whether they can associate you with their survivival. 
+Enlightening a customer about how your product can help them survive simply means telling them how. How does this product work to help me survive?
+Only after a person is enlightened and convinced their problem can be solved and their servival will be enhanced are they willing to move into the next stage of a relationship commitment. 
+A commitment happens in a relationship when a person is willing to take a risk on another person or a product they beleive will help them survive. 
+If we ask for a commitment before we pique somebody's curiosity or enlighten them about our product, they will walk away. 
+Figure 6.2
+A one-lines
+A wire-framed landing page
+An email canpaign 
+
 
 
 
