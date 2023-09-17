@@ -252,6 +252,15 @@ Define that's at stake and your story will get very very interesting.
 
 Tip of the Day: When clarifying your marketing message, define what can be won or lost if people don't engage in the story you're inviting them into. 
 
+Chapter 6: Marketing Made Easy
+How to Create a Sales Funnel That Converts Potentials Customers into Buyers
+
+Introduction
+The reason they were able to survive is because businesses who built sales funnels had collected email addresses and contact information. They were then able to pivot thier message and their offerings to reflect the crisis. Businesses who didn't have sales funnels were not able to reach out to their customers and so were forgotten. 
+Everybody should understand how to tell people what they do and why it matters. 
+
+
+
 
 
 
