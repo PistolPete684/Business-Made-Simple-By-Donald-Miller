@@ -276,7 +276,7 @@ A commitment happens in a relationship when a person is willing to take a risk o
 If we ask for a commitment before we pique somebody's curiosity or enlighten them about our product, they will walk away. 
 Figure 6.2
 A one-lines
-A wire-framed landing page/
+A wire-framed landing page
 An email canpaign 
 
 
