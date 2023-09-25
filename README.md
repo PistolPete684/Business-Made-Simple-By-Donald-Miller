@@ -277,7 +277,7 @@ If we ask for a commitment before we pique somebody's curiosity or enlighten the
 Figure 6.2
 A one-lines
 A wire-framed landing page
-An email canpaign 
+An email canpaign .
 
 
 
