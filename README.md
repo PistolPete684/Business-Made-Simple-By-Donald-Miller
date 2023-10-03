@@ -279,6 +279,15 @@ A one-lines
 A wire-framed landing page
 An email canpaign 
 
+Day 33: Write a One-Liner That Generates Sales
+
+When most people are asked what they do, they state the name of the company they work for or perhaps their job title. This information fails to pique anybody's curiosity.
+1. A problem
+2. Your product as a solution
+3. The result
+
+Once you've created your one-liner, print it on the back of your business card. Use your one-liner as your email signature. Make sure to include your one-liner on your website. Memorize your one-liner, so that when people ask you what you do, you give a clear answer that grows your business. 
+
 
 
 
