@@ -288,6 +288,18 @@ When most people are asked what they do, they state the name of the company they
 
 Once you've created your one-liner, print it on the back of your business card. Use your one-liner as your email signature. Make sure to include your one-liner on your website. Memorize your one-liner, so that when people ask you what you do, you give a clear answer that grows your business. 
 
+Day 34: Wire-Frame an Effective Website
+
+Most people do not read websites, they scan them. 
+In only five seconds, would the caveman be able to clearly state the answer to these three questions:
+1. What do you offer?
+2. How will it make my life better?
+3. What do I need to do to buy it?
+
+Most companies want to share for too much information on ther website.
+What they do need to know is what you offer, how it will make their lives better,  and what they need to do to buy it. 
+The top section of your website is most important because it frames the rest of the message...
+
 
 
 
