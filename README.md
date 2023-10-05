@@ -317,6 +317,18 @@ Creating an email campaign gives you the chance to spend quality time with your 
 You should continue to solve their problems, encourage them, inspire and inform them. 
 Asking a customer for a commitment is a big deal. They could easility lose thier money or even feel like a fool for making the wrong decision. 
 
+Chapter 7 Intro: Communication Made Simple - How to Become An Exceptional Communicator
+
+To give a good presentation, we need to understand the five questions every audience secretly wants the presenter to answer. 
+If you do answer them, you answer them creatively and memorabl, the audience will like your presention. 
+1. What problem are you going to help the audience solve?
+2. What is your solution to the problem?
+3. What will my life look like if I take your up on your solution?
+4. What do you want to audience to do next?
+5. What do you wnat the audience to remember?
+
+Many communication coaches will tell you to open with a joke or be vulnerable or breathe deeply before you start talking. All of that advice is fine, but none of it is necessary  to give a great presentation. What's necessary for any presentation whether you're funny or smart or vulnerable or witty, is to answer those five questions for tha audience. If you answer those questions, you will win. 
+
 
 
 
