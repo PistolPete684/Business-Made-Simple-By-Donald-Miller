@@ -330,6 +330,11 @@ If you do answer them, you answer them creatively and memorabl, the audience wil
 Many communication coaches will tell you to open with a joke or be vulnerable or breathe deeply before you start talking. All of that advice is fine, but none of it is necessary  to give a great presentation. What's necessary for any presentation whether you're funny or smart or vulnerable or witty, is to answer those five questions for tha audience. If you answer those questions, you will win. 
 
 
+Day 38: Give a Great Presentation
+
+Instead of opening with an introduction, open with the problem. 
+Because why should I assume anyone cares who I am until they know I can solve an important problem?
+When you open a presentation by talking about a problem, you hook the audience. When you don't open with a problem, the audience sits and wonders why they should be listening. 
 
 
 
