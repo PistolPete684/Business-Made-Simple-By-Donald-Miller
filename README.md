@@ -300,6 +300,17 @@ Most companies want to share for too much information on ther website.
 What they do need to know is what you offer, how it will make their lives better,  and what they need to do to buy it. 
 The top section of your website is most important because it frames the rest of the message...
 
+Day 35: Collect Email Addresses
+
+The key is to offer tangible, free value in exchange for a potential customer's contact information. 
+...they are only willing to give up their emial address for something they would actually pay ten or twenty dollars for. 
+You've likely tried to collect email addresses in the past by starting a newsletter, but nobody wants to subscribe to your newsletter. Why? Because they don't know what specific problem your newsletter solves. A PDF entitled "How To Get Your Dog To Stop Jumping On People," on the other hand, offers clear value. 
+1. Make it short
+2. Give it a cover
+3. Make it solve a specific problem
+
+
+
 
 
 
