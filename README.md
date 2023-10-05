@@ -309,6 +309,13 @@ You've likely tried to collect email addresses in the past by starting a newslet
 2. Give it a cover
 3. Make it solve a specific problem
 
+Day36: Email Your Customers
+
+I wanted and had a strong bias toward actions. But that wasn't going to work with her. What she wanted was for me to hang out long enough and in a variety of situations so that any weirdness would come out and she'd know what she was getting. Smart women. 
+
+Creating an email campaign gives you the chance to spend quality time with your customers.
+You should continue to solve their problems, encourage them, inspire and inform them. 
+Asking a customer for a commitment is a big deal. They could easility lose thier money or even feel like a fool for making the wrong decision. 
 
 
 
