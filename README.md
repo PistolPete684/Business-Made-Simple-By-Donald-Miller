@@ -1,7 +1,7 @@
 # Business-Made-Simple-By-Donald-Miller
 Chapter highlights
 
-Chapter One - Character .
+Chapter One - Character 
 
 Day 1: See yourself as an economic product on the open market
 
