@@ -343,6 +343,10 @@ What will life look like if people actually do what your presenation is asking t
 Be sure to make your foreshadowed climactic scene visual. The harder the climactic scene is to visualize, the less power it will have to engage your audience. 
 When you foreshadow a climactic scene in your presentation, you inspire your audience to head toward that scene. The idea is to make the audience want to make the scene come to life. 
 
+Day 40: Challenging the Audience to Take Action
+
+
+
 
 
 
