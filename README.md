@@ -336,6 +336,14 @@ Instead of opening with an introduction, open with the problem.
 Because why should I assume anyone cares who I am until they know I can solve an important problem?
 When you open a presentation by talking about a problem, you hook the audience. When you don't open with a problem, the audience sits and wonders why they should be listening. 
 
+Day 39: Foreshadow a Climactic Scene
+
+A good story is always headed somehwere, and usually that somewhere has been foreshadowed early...
+What will life look like if people actually do what your presenation is asking them to do? Have you painted a picture so the audience can imagine that better life?
+Be sure to make your foreshadowed climactic scene visual. The harder the climactic scene is to visualize, the less power it will have to engage your audience. 
+When you foreshadow a climactic scene in your presentation, you inspire your audience to head toward that scene. The idea is to make the audience want to make the scene come to life. 
+
+
 
 
 
