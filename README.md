@@ -3,7 +3,7 @@ Chapter highlights
 
 Chapter One - Character 
 
-Day 1: See yourself as an economic product on the open market.
+Day 1: See yourself as an economic product on the open market
 
 "This means when you are chosen to take a position at a company, your boss is literally betting their own career and livelihood on your performance."
 "The key to moving ahead is to become the very best investment possible."
