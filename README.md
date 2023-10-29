@@ -345,6 +345,14 @@ When you foreshadow a climactic scene in your presentation, you inspire your aud
 
 Day 40: Challenging the Audience to Take Action
 
+A great communicator will include a strong call to action in thier presentation so the audience can knowingly contribute to the meaningful effort they recommend. 
+...in general, people do not take action unless they are challenged to take action. 
+In stories, heroes must be forced to take action by some kind of inciting incident.
+...when you ask an audience to sacrifice on behalf of an idea or a plan, they begin to own that idea or plan for themselves. 
+It must be clear.
+...don't make people figure out what you want them to do. Just tell them. And tell them plainly. 
+
+
 
 
 
