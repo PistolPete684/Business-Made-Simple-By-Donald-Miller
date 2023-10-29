@@ -352,6 +352,18 @@ In stories, heroes must be forced to take action by some kind of inciting incide
 It must be clear.
 ...don't make people figure out what you want them to do. Just tell them. And tell them plainly. 
 
+Day 41: Determine the Theme of Your Presentation
+
+"People remember the last thing you say more than anything else" he said. "It's like ringing a bell. It just keeps reververating in their minds for an hour or more."
+The most powerful last tine of your presentation should be the theme of your talk. 
+A theme is a way of saying what the story is about or the moral of the story. 
+To discover your theme, ask yourself why this presentation is so important. 
+Starting the theme at the end of your presentation makes sure you told your audience what your talk was about. Without stating the theme, your are making your audience do the math to figure it out for themselves. Chances are, unless you state your theme, they won't be able to figure out the main idea of your talk. And that means you won't be remembered as a good presenter. 
+Sadly, most audiences have no idea what the presenter was trying to day. They just laughed at a few jokes and sighed at a few emotional stories. And then forgot everything. 
+In fact, I will often repeat the theme several times throughout myu talk, being careful, of course, to state it clearly again at the end of my talk. 
+
+
+
 
 
 
