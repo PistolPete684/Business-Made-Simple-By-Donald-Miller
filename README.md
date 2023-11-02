@@ -362,6 +362,13 @@ Starting the theme at the end of your presentation makes sure you told your audi
 Sadly, most audiences have no idea what the presenter was trying to day. They just laughed at a few jokes and sighed at a few emotional stories. And then forgot everything. 
 In fact, I will often repeat the theme several times throughout myu talk, being careful, of course, to state it clearly again at the end of my talk. 
 
+Day 42: Qaulify the Lead
+
+When selling, you are inviting a character into a story in which their problem gets solved and they are transformed into a better, more fully equipped version of themselves. This means, however, that not every character is right for the part. 
+Does the customer have the problem the product solves?
+Can the customer afford to buy the solution?
+Does the customer have the authority to buy the product?
+...if you cast the wrong characters, the story won't work.
 
 
 
