@@ -369,6 +369,9 @@ Does the customer have the problem the product solves?
 Can the customer afford to buy the solution?
 Does the customer have the authority to buy the product?
 ...if you cast the wrong characters, the story won't work.
+You'll have to fully understand what problem your product actually solves and develop a series of questions to access whether or not your lead has that problem.
+Every salesperson should keep a long list of qualified leads. Each of these leads is a candidate to be cast in the story you are inviting them into. 
+
 
 
 
