@@ -372,6 +372,21 @@ Does the customer have the authority to buy the product?
 You'll have to fully understand what problem your product actually solves and develop a series of questions to access whether or not your lead has that problem.
 Every salesperson should keep a long list of qualified leads. Each of these leads is a candidate to be cast in the story you are inviting them into. 
 
+Day 43: Invite Customers into a Story
+
+Now that you know who to cast in the story, it's time to invite them into the story itself. 
+1. I see you are struggling with X problem
+2. I see that X problem is causing Y frustrtion
+3. Our product or service resolves Y frustration by resolving X problem
+4. We've worked with hundreds of clients with X problems and here are the results
+5. Let's create a step-by-step plan so your problem and frustration get resolved
+...you should use this formula to invite customers into a storyin which their problems are resolved through the purchasing of your products.
+...do the hard work of identifying their problems, listening to their frustrations that their problems are causing, and consulting with them over how those problems can be solved.
+    When you talk with a potential customer, do you cleary see and can you cleary explain the story you are inviting them into? And can you customize that story for their specific situation and pain points? And are you       communicating that story as an invitation to solve their problems and change their lives?
+...use the five-part formula above to map your customers' stories and then start inviting them to resolve their problem.
+
+
+
 
 
 
