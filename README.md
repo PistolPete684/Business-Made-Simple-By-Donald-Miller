@@ -393,7 +393,9 @@ So, what does a guide do well? Well, as it relates to selling, a guide does thre
 2. Gives the hero a plan to resolve thier problem and win the day
 3. Foreshadows the climiactic scene of the story
 
-The guide needs to know their lines and speak them often. Reminding the customer about the story and offering them a plan comes down to walking
+The guide needs to know their lines and speak them often. Reminding the customer about the story and offering them a plan comes down to talking points.
+The key to inviting customers into a story is to figure out the talking points that define the story and then repeat them in lunch meetings, emials, proposals, phone calls, and more. 
+...80 percent of your time can be spent building authentic relationship as long as 20 percent of your communication is reinforcing the talking points and inviting the customer into a clear and compelling story. 
 
 
 
