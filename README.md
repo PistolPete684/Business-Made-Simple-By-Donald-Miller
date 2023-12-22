@@ -385,6 +385,16 @@ Now that you know who to cast in the story, it's time to invite them into the st
     When you talk with a potential customer, do you cleary see and can you cleary explain the story you are inviting them into? And can you customize that story for their specific situation and pain points? And are you       communicating that story as an invitation to solve their problems and change their lives?
 ...use the five-part formula above to map your customers' stories and then start inviting them to resolve their problem.
 
+Day 44: Repeat Your Talking Points
+
+You are a guide for your customers. 
+So, what does a guide do well? Well, as it relates to selling, a guide does three things:
+1. Reminds the hero what the story is about
+2. Gives the hero a plan to resolve thier problem and win the day
+3. Foreshadows the climiactic scene of the story
+
+The guide needs to know their lines and speak them often. Reminding the customer about the story and offering them a plan comes down to walking
+
 
 
 
