@@ -402,6 +402,8 @@ Day 45 How to Sell: Create a Great Proposal
 People always reject a confusing offer. 
 People do not like to walk into a fog. Our internal survival mechanisms want us to stay in environments that are free of threats or potential threats, and walking into a fog involves too much mystery. 
 The same thing is true in the world or ideas. If we are confused about what the future look like, about wht somebody's intentions are, or even about what our next steps should be, the brian senses mental fog and steps back. 
+They thoughtfully relay the customer's problems, the specific plan they discussed, and the strong call to action that leads to the climactic scene. 
+
 
 
 
