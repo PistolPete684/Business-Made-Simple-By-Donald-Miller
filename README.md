@@ -397,7 +397,11 @@ The guide needs to know their lines and speak them often. Reminding the customer
 The key to inviting customers into a story is to figure out the talking points that define the story and then repeat them in lunch meetings, emials, proposals, phone calls, and more. 
 ...80 percent of your time can be spent building authentic relationship as long as 20 percent of your communication is reinforcing the talking points and inviting the customer into a clear and compelling story. 
 
+Day 45 How to Sell: Create a Great Proposal 
 
+People always reject a confusing offer. 
+People do not like to walk into a fog. Our internal survival mechanisms want us to stay in environments that are free of threats or potential threats, and walking into a fog involves too much mystery. 
+The same thing is true in the world or ideas. If we are confused about what the future look like, about wht somebody's intentions are, or even about what our next steps should be, the brian senses mental fog and steps back. 
 
 
 
