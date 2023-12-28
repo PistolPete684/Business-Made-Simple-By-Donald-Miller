@@ -404,7 +404,12 @@ People do not like to walk into a fog. Our internal survival mechanisms want us 
 The same thing is true in the world or ideas. If we are confused about what the future look like, about wht somebody's intentions are, or even about what our next steps should be, the brian senses mental fog and steps back. 
 They thoughtfully relay the customer's problems, the specific plan they discussed, and the strong call to action that leads to the climactic scene. 
 
+Day 46 How to Sell: How to Close the Sale
 
+Man, just don't make it heavy. 
+The reason people get nervous aout dating is the same reason some salepeople are afriad to close the deal. They're nervous about being rejected. 
+...there should be nothing heavy about a sale interaction.
+Sales professionals do better when we fully live as sales peole, telling everybody what we sell and wht problems our products solve and  asking people to tell their friends about our products. 
 
 
 
