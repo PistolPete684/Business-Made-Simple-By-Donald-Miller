@@ -410,7 +410,9 @@ Man, just don't make it heavy.
 The reason people get nervous aout dating is the same reason some salepeople are afriad to close the deal. They're nervous about being rejected. 
 ...there should be nothing heavy about a sale interaction.
 Sales professionals do better when we fully live as sales peole, telling everybody what we sell and wht problems our products solve and  asking people to tell their friends about our products. 
-
+But its the sales professional who feels terrific about their calls to action, understands it as a service to the world, and does not make it heavy who actually gets the sale. 
+I beleive in my product. I beleive I can solve a serious problem in the world and so I'm not shy about letting people know. 
+When we believe in ourselves and out products, we do not act in fear-rather, we call customers to action with confidence. 
 
 
 
