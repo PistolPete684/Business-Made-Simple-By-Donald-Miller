@@ -365,6 +365,12 @@ In fact, I will often repeat the theme several times throughout myu talk, being 
 
 Chapter 8: Sales Made Simple
 
+Selling is really about expaining to a person how your product or service can solve their problem and then guiding them through the process to make a purchase.
+Human being resent being coerced into buying things. 
+They may conply, but compliance is often a form of resistance because its the fastest way to get rid of the salesperson. 
+A good salesperson, on the other hand, works within a framework that invites a customer into a story in which they solve a problem and feel good about themselves in the process.
+
+
 Day 42 How to Sell: Qaulify the Lead
 
 When selling, you are inviting a character into a story in which their problem gets solved and they are transformed into a better, more fully equipped version of themselves. This means, however, that not every character is right for the part. 
