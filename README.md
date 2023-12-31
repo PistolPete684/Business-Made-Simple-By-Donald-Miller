@@ -362,7 +362,10 @@ Starting the theme at the end of your presentation makes sure you told your audi
 Sadly, most audiences have no idea what the presenter was trying to day. They just laughed at a few jokes and sighed at a few emotional stories. And then forgot everything. 
 In fact, I will often repeat the theme several times throughout myu talk, being careful, of course, to state it clearly again at the end of my talk. 
 
-Day 42: Qaulify the Lead
+
+Chapter 8: Sales Made Simple
+
+Day 42 How to Sell: Qaulify the Lead
 
 When selling, you are inviting a character into a story in which their problem gets solved and they are transformed into a better, more fully equipped version of themselves. This means, however, that not every character is right for the part. 
 Does the customer have the problem the product solves?
@@ -372,7 +375,7 @@ Does the customer have the authority to buy the product?
 You'll have to fully understand what problem your product actually solves and develop a series of questions to access whether or not your lead has that problem.
 Every salesperson should keep a long list of qualified leads. Each of these leads is a candidate to be cast in the story you are inviting them into. 
 
-Day 43: Invite Customers into a Story
+Day 43 How to Sell: Invite Customers into a Story
 
 Now that you know who to cast in the story, it's time to invite them into the story itself. 
 1. I see you are struggling with X problem
@@ -385,7 +388,7 @@ Now that you know who to cast in the story, it's time to invite them into the st
     When you talk with a potential customer, do you cleary see and can you cleary explain the story you are inviting them into? And can you customize that story for their specific situation and pain points? And are you       communicating that story as an invitation to solve their problems and change their lives?
 ...use the five-part formula above to map your customers' stories and then start inviting them to resolve their problem.
 
-Day 44: Repeat Your Talking Points
+Day 44 How to Sell: Repeat Your Talking Points
 
 You are a guide for your customers. 
 So, what does a guide do well? Well, as it relates to selling, a guide does three things:
@@ -413,6 +416,13 @@ Sales professionals do better when we fully live as sales peole, telling everybo
 But its the sales professional who feels terrific about their calls to action, understands it as a service to the world, and does not make it heavy who actually gets the sale. 
 I beleive in my product. I beleive I can solve a serious problem in the world and so I'm not shy about letting people know. 
 When we believe in ourselves and out products, we do not act in fear-rather, we call customers to action with confidence. 
+
+Chapter 9: Negotiation Made Simple
+
+Every professional is constantly negotiating, whether they know it or not. 
+Anytime you find yourself in strategic communication in order to win a deal or resolve a problem, your are in a negotiation. 
+Sadly, most professionals negotiate without ever realizing they are negotiating at all. 
+
 
 
 
