@@ -1,7 +1,9 @@
 # Business-Made-Simple-By-Donald-Miller
 Chapter highlights
 
-Chapter One - Character 
+Chapter 1 - Character 
+
+MISSING
 
 Day 1 Character: See yourself as an economic product on the open market
 
@@ -437,6 +439,12 @@ Every professional is constantly negotiating, whether they know it or not.
 Anytime you find yourself in strategic communication in order to win a deal or resolve a problem, your are in a negotiation. 
 Sadly, most professionals negotiate without ever realizing they are negotiating at all. 
 
+Day 47 How to Negotiate: The Two Types of Negotiations
+
+A win/lose mode of negotiation is called competitive while a win/win mode is called collaborative.
+A general rule about negotiation is that if one party if cometitive and the oother party is collaborative, the competitive negotiation technique is going to win and the collobarative is going to lose. Nearly always. 
+...when in a competitive mode, the negotiator will not sense that they have won until you lost. 
+So here's the rule: If you are in a collaborative negotiation mode and you sense the person you are negotiating with is in a competitive mode, you should switch to competitive immediately. 
 
 
 
