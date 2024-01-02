@@ -445,6 +445,12 @@ A win/lose mode of negotiation is called competitive while a win/win mode is cal
 A general rule about negotiation is that if one party if cometitive and the oother party is collaborative, the competitive negotiation technique is going to win and the collobarative is going to lose. Nearly always. 
 ...when in a competitive mode, the negotiator will not sense that they have won until you lost. 
 So here's the rule: If you are in a collaborative negotiation mode and you sense the person you are negotiating with is in a competitive mode, you should switch to competitive immediately. 
+Why was it important to not let them know we'd arrived at the price I wanted?Because is they knew we both won, they'd raise the price. A competitive negotiator needs for you to lose, so when you let them know all you are losing to do the deal, they feel satisfied. 
+What we're really talking about here is creating a false bottom to the negotiation. 
+...make sure to let them know you won't be able to go any further and that's when they will feel as thought they have won.
+...if you are in collabortive mode and the other party is competitive, you will lose unless you recognize wht is happening. 
+Always know what kind of negotiation mode the person you are negotiating with is in and respond accordingly. 
+
 
 
 
