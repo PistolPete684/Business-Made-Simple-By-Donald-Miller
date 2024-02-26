@@ -451,6 +451,15 @@ What we're really talking about here is creating a false bottom to the negotiati
 ...if you are in collabortive mode and the other party is competitive, you will lose unless you recognize wht is happening. 
 Always know what kind of negotiation mode the person you are negotiating with is in and respond accordingly. 
 
+Day 48 How to Negotiate: Go Below the Line
+
+Not all negotiations are rational. 
+People are motivated by many things, not just money.
+As you negotiate, ask yourself what other factors could be in play.
+There is almost always something happening below the line. 
+...it's about bringing somone satisfaction at the end of the deal. And that includes emotional satisfaction. 
+
+
 
 
 
