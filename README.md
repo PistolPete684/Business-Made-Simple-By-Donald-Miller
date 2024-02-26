@@ -459,6 +459,14 @@ As you negotiate, ask yourself what other factors could be in play.
 There is almost always something happening below the line. 
 ...it's about bringing somone satisfaction at the end of the deal. And that includes emotional satisfaction. 
 
+Day 49 How to Negotiate: Make the Initial Offer
+
+Anchoring the negotiation means that you've places a number on the table that you want the rest of the negotiation to gravitate around. 
+For instance, if you're buying  new car, the dealership puts a number on the window that almost always anchors the price with a high gravitational pull. If they wnt $35,000 for the car, and you negotiate the price down to $34,000, you feel like you got a deal at $1,000 off the asking price. But what if the opening offer (the sticker on the car) was set $5,000 over what the dealership was willing to accecpt? That means they got $4,000 over the price they'd have sold it to you for. 
+When you are able to make the opening offer, you, from that point on, set the gravitational anchor for the rest of the conversation. This is a strategic advantage. 
+Sometimes, having information that adjusts the gravity of the negotiation your way resets the conversation.
+Regardless of whether you make the opening offer or not, by thinking of the various offers as numbers that affect the gravitational pull, you can sway the deal more toward a resolution you are comfortable with. 
+
 
 
 
