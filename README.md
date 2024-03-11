@@ -467,6 +467,14 @@ When you are able to make the opening offer, you, from that point on, set the gr
 Sometimes, having information that adjusts the gravity of the negotiation your way resets the conversation.
 Regardless of whether you make the opening offer or not, by thinking of the various offers as numbers that affect the gravitational pull, you can sway the deal more toward a resolution you are comfortable with. 
 
+Day 50 How to Negotiate: Don't Get Emotionally Hooked
+
+...when we are negotiating for something we want, we shoudld make sure we aren't overtaken by our emotions so that we make bad decisions. 
+One good tactic is to find another alternative and split our interests so that we aren't so easily carried away. 
+When you are emotionally hooked, split your interests and begin to look for alternatives. 
+It's funny how you can want something so badly when you think there's nothing better out there, but the second you split your interest, you gain leveraging power and also realize a scarcity mindset could cost you.
+The strategy here is to beware of wanting something so much. Wanting something too much hooks you, and once you're hooked, you'll likely start making bad decisions. There is a world of wonderful options out there. Make sure you know what they are before you start negotiating. 
+
 
 
 
