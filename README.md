@@ -475,6 +475,14 @@ When you are emotionally hooked, split your interests and begin to look for alte
 It's funny how you can want something so badly when you think there's nothing better out there, but the second you split your interest, you gain leveraging power and also realize a scarcity mindset could cost you.
 The strategy here is to beware of wanting something so much. Wanting something too much hooks you, and once you're hooked, you'll likely start making bad decisions. There is a world of wonderful options out there. Make sure you know what they are before you start negotiating. 
 
+Chapter 10: Management Made Simple
+
+Management is all about helping other people win so the overall team can win. Managers who are not liked are managwers who do not have a clear definition of what it means to win or don't have a clear idea of the wins each individual team member can experience personally while they are helping the overall team win. 
+A good manager is able to analyse the skills and talent on their team and design a winning plan around that team.
+Management, however, is about creativity putting the right people to work on the right assignments.
+Every team member that is givent he freedom to improve upon their job is actually a manager. 
+...we must always remember that when we manage we aren't just managing systems, we are managing people within those systems. 
+
 
 
 
