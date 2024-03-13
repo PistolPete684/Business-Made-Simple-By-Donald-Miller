@@ -483,6 +483,19 @@ Management, however, is about creativity putting the right people to work on the
 Every team member that is givent he freedom to improve upon their job is actually a manager. 
 ...we must always remember that when we manage we aren't just managing systems, we are managing people within those systems. 
 
+Day 51 How to Manage People: Establish Clear Priorities 
+
+I make sure every manager of every division of my comnpany knows what they are responsible to produce. 
+The manager must tell the team, nearly everyday, what their focus should be. 
+...break down the parts of the process that produce something for the company's bottom line, then begin to measure those parts to keep the team accountable to accomplish them,...
+The bottom line of the company is the bottom line.If the company is not profitable, the company will go under and everybody will lose their jobs. 
+...whatever it is your produce must be scalable. This is not true of businesses that don't desire to scale, but for most of us, it's critical. 
+Could more people be hired to create more of whatever is is that you're obligated to produce? Is the process you've designed dependent on you or other employees' personalities or skill sets to deliver en masse? Have your clearly defined the process that must be performed that somebody else could join the team and accomplish those processes to increase production?
+It is my view that knowing what to produce and making sure it is measurable, profitable, and scalable is a signigicant percentage of a manager's job. 
+...human beings like to measure their progress and see, at the end of a year, that the thing they built is bigger than it was when they started.
+A manager should want something more than to be liked. They should want to create a team in which every member feels valuable and important based on a performance that is measurable. 
+
+
 
 
 
