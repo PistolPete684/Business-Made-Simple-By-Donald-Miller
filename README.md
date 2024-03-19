@@ -495,6 +495,17 @@ It is my view that knowing what to produce and making sure it is measurable, pro
 ...human beings like to measure their progress and see, at the end of a year, that the thing they built is bigger than it was when they started.
 A manager should want something more than to be liked. They should want to create a team in which every member feels valuable and important based on a performance that is measurable. 
 
+Day 52 How to Manage People: Identify Key Performance Indicators
+
+What we define what our department produces, we must measure the factors that lead to the production of that output. 
+Lead indicators are the actions that lead to success while lag indicators are the measures of that success. 
+That's why good managers are actually as obsessed with lead indicators as they are with lag indicators: because lead indicators cause lag indicators. 
+If we do not measure the specific indicators that increase production, we leave the focus of our people and our division up to chance. And chance rarely produces anything good. 
+A good managers acts like a coach. They explain the rules of the game to their team and give them specific instructions about how to perform better and win the game. A manager who simply cheers their team on is not a coach; they are a cheerleader. Coaches design plays, give specific instrucitons, and collaborate with their team to create strategies that lead to victory. 
+To determine what to classify as a key performance indicator, you'll want to reverse engineer the  components of the products you are supposed to produce. 
+Figure out what to measure and become obsessed with increasing the quantity and quality of whtever it is tht you or your division produces.
+A good manager knows how to create a game out of their work and further knows how to guide their team members to victory. 
+
 
 
 
