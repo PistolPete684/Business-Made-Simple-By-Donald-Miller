@@ -506,6 +506,15 @@ To determine what to classify as a key performance indicator, you'll want to rev
 Figure out what to measure and become obsessed with increasing the quantity and quality of whtever it is tht you or your division produces.
 A good manager knows how to create a game out of their work and further knows how to guide their team members to victory. 
 
+Day 53 How to Manage People: Create Streamlined Processes
+
+Hold a series of meetings in which you and your team analyze your processes and answer the question: How can you make things better?
+Much money is lost in inefficiencies...
+...making the machine more efficient is about improving the activity-to-output ratio. We want to constantly ask ourselves how we can get more output out of our activity.
+The undelying question is: How can we produce more of what we produce without losing quality or increasing activity?
+Another quesion you want to ask in order to improve the output and efficency of your division is: What is the limiting factor in our division, and how can we decrease that limitation?
+
+
 
 
 
