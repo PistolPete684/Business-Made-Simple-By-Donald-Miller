@@ -514,6 +514,18 @@ Much money is lost in inefficiencies...
 The undelying question is: How can we produce more of what we produce without losing quality or increasing activity?
 Another quesion you want to ask in order to improve the output and efficency of your division is: What is the limiting factor in our division, and how can we decrease that limitation?
 
+Day 54 How to Manage People: Give Valuable Feedback
+
+Because you will never turn a human being into a machine. They must always receive human connection and human affirmation. 
+People are infinitely more complex and miraculous than machines.
+A good manager knows then, that their people are their most valuable asset. 
+...letting them know how they are going as members of the team. And thsi involves praise and constructive feedback. 
+When giving praise, be specific about what the team member has done to earn that praise. 
+The key to giving good feedback is to always, always be for the team member you are instructing.
+Any person will willing take (and hunger for) criticism from a manager who is undoubtedly for them. 
+It is not enough to let a team member know they have failed. A team member needs to know they have failed and then be given specific instructions allowing them to succeed in the future. 
+As managers, if we just want to use people, we will praise them for their successes and then get rid of them if they fail too often. But if we are for people, we praise them for their successes and teacht them practical tools that will help them succeed over and over. How? By offering praise and consructive feedback. 
+
 
 
 
