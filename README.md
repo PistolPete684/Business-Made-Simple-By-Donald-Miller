@@ -526,6 +526,16 @@ Any person will willing take (and hunger for) criticism from a manager who is un
 It is not enough to let a team member know they have failed. A team member needs to know they have failed and then be given specific instructions allowing them to succeed in the future. 
 As managers, if we just want to use people, we will praise them for their successes and then get rid of them if they fail too often. But if we are for people, we praise them for their successes and teacht them practical tools that will help them succeed over and over. How? By offering praise and consructive feedback. 
 
+Day 55 How to Manage People: Be More Than A Cheerleader, Be A Coach
+
+Coaches transfer their business knowledge to their team members and  thus dublicate themselves within a growing organization. 
+Cheerleaders cheer the team on while coaches instruct the team about processes that lead to victory. 
+There is nothing wrong with a cheerleader, of course, but a cheerleader is not enough to lead the team (or an individual) to success.
+The difference between a coach and a cheerleader is that, while a cheerleader cheers you on, a coach gives you specific instructions and objectives that help you succeed, then helps you learn and employ those frameworks on the job. 
+Professionals who are lucky enough to have a good business coach are destined for success. 
+Imagine working hard to make the highschool basketball team. On the first day of practice the coach lines the team up and explains that the key to a winning season is simple-that you as a team must score more points than the other team. The coach then explains that if you don't score more points than the other team, you will be held accountable. But don't worry, because if you do, you will be praised and rewarded. And that's it. 
+A coach explains to the team how the game works, assesses each team member's specific talents and puts them in the right position, develops eacht team member by teaching them practical, repeatable behaviours that will improve their game, and then guides them each into personal transformation so they can become the best basketball players they can be. 
+
 
 
 
