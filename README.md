@@ -536,6 +536,18 @@ Professionals who are lucky enough to have a good business coach are destined fo
 Imagine working hard to make the highschool basketball team. On the first day of practice the coach lines the team up and explains that the key to a winning season is simple-that you as a team must score more points than the other team. The coach then explains that if you don't score more points than the other team, you will be held accountable. But don't worry, because if you do, you will be praised and rewarded. And that's it. 
 A coach explains to the team how the game works, assesses each team member's specific talents and puts them in the right position, develops eacht team member by teaching them practical, repeatable behaviours that will improve their game, and then guides them each into personal transformation so they can become the best basketball players they can be. 
 
+Execution Made Simple: Introduction
+
+There is not a single characteristic I value more in a team member than their ability to execute.
+We can sit and talk about ideas all day, but it's only the ideas that turn into products that are sold to customers that more the company forward. 
+Every ounce of energy that a group a people spends is wasted unless the job is actually done and the product is returning revenue and profit.
+If Management Made Simple is the design of the process that creates the profitable output of products and services, then Execution Made Simple is how you manage the repeatable (and relational) exchanges involved in those processes. 
+1. Hold a launch meeting to launch a project or initiative
+2. Have each team member fill out a "one-pager"
+3. Hold weekly "speed checks"
+4. Keep score and measure your success
+5. Celebrate your teams victories
+
 
 
 
