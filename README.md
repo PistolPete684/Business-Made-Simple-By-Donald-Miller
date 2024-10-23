@@ -549,6 +549,19 @@ If Management Made Simple is the design of the process that creates the profitab
 5. Celebrate your teams victories
 
 
+Day 56 How to Execute: Hold a Launch Meeting
+At the highest level of any organization sit people who may or may not be creative, smart, passionate, or even hardworking. But every single one of them knows how to get things done. 
+The first thing you want to do at a launch meeting is to fill out a 'project scope' worksheet. 
+1. Set a clear view of success
+2. Assign the leaders
+3. Identify resources needed
+4. Create a timeline with key milestones
+
+At the end of the meeting, make sure to announce that the launch of this prokect if official. It will serve your team to have a psychological memory of a moment inw hich the priject became real. 
+Every person should know what part of the project they are directly responsible for, when it needs to be done, and why it matters. 
+Clarity is a prerequisite for commitment. Unless you are clear about what needs to be done, by whom, and by when, the project will fail. 
+
+
 
 
 
